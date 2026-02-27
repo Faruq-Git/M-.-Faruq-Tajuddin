@@ -1,1 +1,0 @@
-# M-.-Faruq-Tajuddin
